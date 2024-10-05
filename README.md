@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **WebDev**
 
-- 📫 How to reach me **anuragbro00001@gmail.com**
+- 📫 How to reach me **anuragg.gautamm@gmail.com**
 
 - ⚡ Fun fact **I think I am funny.**
 
